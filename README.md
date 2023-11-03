@@ -21,9 +21,9 @@ For Other Countries Travel & Accommodations If Provided Yes Face To Face Availab
 
 This Is An Opportunity You’re All Waited For 💸
 
-For Free Softwares Join In Telegram https://t.me/+-mxl-pnwoc4yMDg1 
+For Free Softwares Join In Telegram https://t.me/cryptoflashreal
 
-Telegram Group:  @Flashbtcshop 
+Telegram Group:  @cryptoflashreal 
 
 Contact Telegram : @Makedrich 🤴
 

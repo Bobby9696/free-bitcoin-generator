@@ -25,7 +25,7 @@ For Free Softwares Join In Telegram https://t.me/cryptoflashreal
 
 Telegram Group:  @cryptoflashreal 
 
-Contact Telegram : @Makedrich 🤴
+Contact Telegram : https://t.me/Makedrich 🤴
 
 
 Flash Method Also Available (Cheap as fuck ) 💲
